@@ -7,3 +7,7 @@ First try in Github
 - I don't know what you saying.
 -- Dudumo!
 - emm...
+-- Kude lyu hep me?
+- Wow... you are speaking humans now. Sure, how can I help?
+-- Poop!
+- Wat?
